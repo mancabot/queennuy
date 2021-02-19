@@ -13,7 +13,7 @@
 
 
 
-- 👥 Subscribe channel kami [`INSTAGRAM`](https://www.instagram.com/thenay_xploit_)
+- 👥 Follow Yah [`INSTAGRAM`](https://www.instagram.com/thenay_xploit_)
 <img src="https://raw.githubusercontent.com/TheDudeThatCode/TheDudeThatCode/master/Assets/Mario_Gameplay.gif"/>
 
 
